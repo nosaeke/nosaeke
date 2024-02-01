@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nosaeke
 - 👀 I’m interested in sports
-- 🌱 I’m currently learning to code
+- 🌱 I’m currently learning to take a deep breath
 - 💞️ I’m looking to collaborate on coding projects
 - 📫 How to reach me don't
 - 😄 Pronouns: He/Him
